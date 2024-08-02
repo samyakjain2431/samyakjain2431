@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **MERN, and how I learnt it :\**
 
-- 📫 How to reach me **samyak.jn2431@gmail.com**
+- 📫 React me  **samyak.jn2431@gmail.com**
 
 - 📄 My Resume [https://drive.google.com/file/d/19D-wABKVrP4L3tv9hy1gS4a8stYfiz9V/view?usp=sharing](https://drive.google.com/file/d/19D-wABKVrP4L3tv9hy1gS4a8stYfiz9V/view?usp=sharing)
 
