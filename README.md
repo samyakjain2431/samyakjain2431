@@ -5,9 +5,9 @@
 
 - 💬 Ask me about **MERN, and how I learnt it :\**
 
-- 📫 React me  **samyak.jn2431@gmail.com**
+- 📫 Email me  **samyak.jn2431@gmail.com**
 
-- 📄 My Resume [https://drive.google.com/file/d/19D-wABKVrP4L3tv9hy1gS4a8stYfiz9V/view?usp=sharing](https://drive.google.com/file/d/19D-wABKVrP4L3tv9hy1gS4a8stYfiz9V/view?usp=sharing)
+- 📄 My Resume [https://drive.google.com/file/d/1Rx2ff3g-YB7a0nWKd6ZwwXyhxMu_2qOU/view](https://drive.google.com/file/d/1Rx2ff3g-YB7a0nWKd6ZwwXyhxMu_2qOU/view)
 
 - ⚡ Fun fact **I love to meet people who can blow my mind**
 
